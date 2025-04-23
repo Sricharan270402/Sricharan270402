@@ -10,9 +10,9 @@
 
 📫 Reach me at:
 
-✉️ sricharan.rayala@gmail.com
+✉️ sricharanrayala2002@gmail.com
 
-💼 LinkedIn
+💼 www.linkedin.com/in/sricharan-rayala-25765324b
 
 😄 Pronouns: He/Him
 
